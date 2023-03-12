@@ -1,5 +1,5 @@
-# kameido-kaki-no-tane
-Short facts from a famous snack
+# kameda-no-kaki-no-tane
+Short facts from a famous snack　亀田の柿の種
 
 日本語
 その１
